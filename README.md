@@ -8,7 +8,8 @@ Es en el agua que encuentro la perfección, en los arboles y montañas la memori
 ### Experiencia
 
 Durante varios años me dedique a gestionar equipos de operaciones, implementar proyectos, tratar con clientes y proveedores para la mejora de procesos, después de ver las necesidades de un mundo que no es para mí, comence a crear jardínes, hacer composta, gestionar residuos, implementar proyectos comunes para la mejora del entorno, si la Sostenibilidad funciona como palabra tambien funciona como acción. El inicio al camino de enverdecer fue sin conocimientos previos, durante los ultimos tres años a través de la acción constante aprendí que las plantas y organismos son maestros de la vida, sostenidos por la muerte, de esta forma me converti en una herramienta para la preservación del entorno.
-Trabajo en dar pasos que me permitan crear un espacio para compartir y compartirnos desde el cuestionamiento y la exploración, colaborando con entintaverde.org, regalo ideas que puedan ayudar a cualquier proceso de mejora social y ambiental, busco nuevas alternativas de economía
+
+Trabajo en dar pasos que me permitan crear un espacio para compartir y compartirnos desde el cuestionamiento y la exploración, colaborando con https://entintaverde.org/, regalo ideas que puedan ayudar a cualquier proceso de mejora social y ambiental, busco nuevas alternativas de economía
 
 - Disposición de residuos
 - Consumo conciente
