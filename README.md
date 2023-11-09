@@ -1,4 +1,4 @@
-**Frida ¿Cecilia? Martínez** me dedico a Ser, a compartir con la naturaleza la admiración y apreciación de la existencia.
+**Frida ¿Cecilia? Martínez**, me dedico a Ser, a compartir con la naturaleza la admiración y apreciación de la existencia.
 Cuestiono la sociedad actual para reescribir lo que siempre nos han enseñado, hemos buscado por años el significado de las cosas, bien, ahora que se ha escrito el conocimiento humano me permito experimentar la naturaleza, para que ella me enseñe sin palabras su propio significado y sabiduría.
 
 ### Ser
