@@ -18,6 +18,7 @@ Me comparti en un intercambio con una pequeña familia productora de germinados 
 ### Curación de antigüedades / Organización 
 #### Pata de Perro
 ##### octubre 2023 - marzo 2024
+Participe como asistente para la organización de tienda fisica especializada en antigüedades, asi como en la curación del espacio y piezas de exhibición y venta
 
 ### Implementacion de Software en México
 #### Bintech solution
@@ -32,7 +33,7 @@ Durante cinco años aprendi y desarrolle aptitudes de servicio, escucha y soluci
 ##### Actualmente
 Aprender y alimentarme del conocimiento es una puerta que me ha permitido ver el entorno de otra manera desde mis propios ojos y sentires, propicio el cuestionamiento para nuestro desarrollo personal y colectivo, 
 
-### Economia circular y sostenibilidad
+### Maestría en Economia circular y sostenibilidad
 #### Trunca / sin titulo 
 ##### 2022 - 2023
 A las mentes inquietas y a los cuerpos cansados, construyamos el lugar que nos llame a ser nosotros, desde cualquier espacio que nos permita sentirnos en un hogar.
