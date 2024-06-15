@@ -12,16 +12,16 @@ Trabajo en dar pasos que me permitan crear un espacio para compartir y compartir
 
 ### Consejer familiar / Mercadito organico
 #### Germinados alimento vivo
-2024
+##### 2024
 Me comparti en un intercambio con una pequeña familia productora de germinados y productos organicos para acompañarlos en sus actividades cotidianas, mi aportación fue dar soporte y compañía a necesidades de la familia, apoyar con los deberes, escuchar las inquietudes de cada participante y brindar calidez y apoyo con palabras que invitan al desarrollo colectivo desde el nucleo familiar, al mismo tiempo me enseñaron sobre el proceso de germinar semillas y crear productos de autocuidado en el ambito salud y alimentos, asi como remedios basados en herboleria, semanalmente participe en la venta de estos productos en los mercaditos organicos de Coatepec "Coatl" y de Xalapa "TAX" 
 
 ### Curación de antigüedades / Organización 
 #### Pata de Perro
-octubre 2023 - marzo 2024
+##### octubre 2023 - marzo 2024
 
 ### Ventas
 #### Panaderia Artesanal Casilda
-junio 2023 - septimebre 2023
+##### junio 2023 - septimebre 2023
 
 ### Implementacion de Software en México
 #### Bintech solution
