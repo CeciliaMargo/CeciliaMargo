@@ -19,10 +19,6 @@ Me comparti en un intercambio con una pequeña familia productora de germinados 
 #### Pata de Perro
 ##### octubre 2023 - marzo 2024
 
-### Ventas
-#### Panaderia Artesanal Casilda
-##### junio 2023 - septimebre 2023
-
 ### Implementacion de Software en México
 #### Bintech solution
 ##### junio - diciembre 2022
