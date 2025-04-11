@@ -1,12 +1,10 @@
 
 # Dedicada al Ser siendo: contemplación de la existencia a través de la naturaleza.
 
-Soy cuerpo y territorio.
 Escucho la naturaleza para recordar quién soy.
-Investigo la conciencia desde la experiencia viva, me estudio como sujeto de regeneración, acompaño procesos de transformación individual y colectiva.
+Investigo la conciencia desde la experiencia viva, me estudio como sujeto - territorio de regeneración, acompaño procesos de transformación individual y colectiva.
 Vivo entre prácticas somáticas, fermentos, jardines y proyectos que buscan enverdecer el mundo desde la raíz.
-
-Reescribo lo que se nos ha enseñado. Me permito experimentar la naturaleza para que ella me enseñe, sin palabras, su propio significado y sabiduría. Me reconozco como un cuerpo vivo que observa y siente, como parte de una inteligencia mayor, en diálogo constante con el entorno.
+Me reconozco como un cuerpo vivo que observa y siente, como parte de una inteligencia mayor, en diálogo constante con el entorno.
 
 
 ## Experiencia
@@ -23,41 +21,41 @@ Actualmente, desarrollo el proyecto Edén , una propuesta de ciudad verde que bu
 
 Desde la práctica, Edén se construye como un tejido de proyectos regenerativos: educativos, ecológicos, comunitarios y de conciencia.
 
-  •	La Casa Común, como núcleo de convivencia, trabajo colectivo y regeneración del entorno.
-	•	Edén, como espacio de autoconocimiento.
-  •	Calendario 13 lunas 
+  • La Casa Común, como núcleo de convivencia, trabajo colectivo y regeneración del entorno.
+  • Edén, como espacio de autoconocimiento.
+  • Calendario 13 lunas 
  
 Aquí, la sostenibilidad no es un objetivo, sino una forma de vida. La naturaleza no es un recurso, sino una maestra. Y la espiritualidad no es doctrina, sino conciencia encarnada. Este proyecto reúne los caminos que he recorrido y las semillas que sigo sembrando.
 
 
-## Asistente y Acompañante personal
-### Casa AiiRo A.C
-#### Noviembre 2024 - Actualidad
+## Casa AiiRo A.C
+### Asistente y Acompañante personal
+Noviembre 2024 - Actualidad
 
-## Acompañamiento familiar y venta en mercaditos orgánicos
-### Germinados: alimento vivo
-#### 2024
+## Germinados: alimento vivo
+### Acompañamiento familiar y venta en mercados orgánicos
+2024
 
-## Curaduría y organización de antigüedades
-### Pata de Perro
-### Octubre 2023 – Marzo 2024
+## Pata de Perro
+### Curaduría y organización de antigüedades
+Octubre 2023 – Marzo 2024
 
-## Gestión de proyectos y software
-### Bintech Solution
-#### Junio – Diciembre 2022
+## Bintech Solution
+### Gestión de proyectos y software
+Junio – Diciembre 2022
 
-## Atención a emergencias y desarrollo operativo
-### Mapfre Asistencia
-#### 2016 – 2021
+## Mapfre Asistencia
+### Atención a emergencias y desarrollo operativo
+2016 – 2021
 
 
 ## Estudio somático y conciencia encarnada
 #### 2023 – Actualidad
 
 Me encuentro profundizando en las prácticas somáticas como vía de autoconocimiento y memoria viva. El cuerpo es un territorio de estudio, y su escucha una práctica en sí misma. Observarnos, sentirnos y narrarnos desde ahí se vuelve una forma de acompañamiento, tanto personal como colectiva. Estoy cultivando una forma de estar en el mundo más enraizada, orgánica y sentida, que nutra los fundamentos del proyecto Edén.
-Actualmente me estudio a mí misma como sujeto vivo de regeneración. Estoy en un proceso profundo de retorno a lo esencial, en donde el cuerpo no es solo una herramienta de movimiento, sino un archivo vivo de memorias, dolores, extasis y posibilidades.
-Aquiles, el cuerpo se volvió territorio de atención absoluta. He aprendido a escucharme en la quietud, en el dolor, en la paciencia, en la lentitud. Este tiempo me ha permitido integrar la práctica somática no como una técnica, sino como una forma de existencia.
+
 Mi día a día se ha convertido en laboratorio de conciencia: observar cómo habito, cómo descanso, cómo me transformo. Cómo lo que muere da paso a lo que nace. Lo que antes llamaba recuperación, hoy lo nombro regeneración. No se trata de volver a ser como antes, sino de aprender a ser nueva desde lo vivido.
+
 Este camino nutre la visión de Edén como una propuesta que parte de lo personal hacia lo colectivo, de lo íntimo hacia lo compartido. El cuerpo como territorio, el descanso como acto político, la lentitud como forma de resistencia, y el juego como tecnología ancestral.
 
 
