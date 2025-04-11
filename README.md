@@ -1,39 +1,72 @@
-Dedicada a Ser, sentir y compartir con la naturaleza la contemplación de la existencia.
-Cuestiono y reescribo lo que se nos ha enseñado, por años se ha buscado el significado de las cosas, se ha escrito a través del conocimiento y entendimiento humano, ahora bien, me permito experimentar la naturaleza, para que ella me enseñe sin palabras su propio significado y sabiduría.
 
-## Ser
+# Dedicada al Ser siendo: contemplación de la existencia a través de la naturaleza.
 
-Es en el agua que encuentro la energía de la vida, en los arboles y montañas la memoria, en el viento un sosten y en el fuego la fuerza, es ahí en la naturaleza en dónde más me encuentro, donde la experimentación de Ser y no Ser nace, es allá y aquí, en el verde que nos habita que encuentro lo necesario para vivir. Soy, siento y hago.
+Soy cuerpo y territorio.
+Escucho la naturaleza para recordar quién soy.
+Investigo la conciencia desde la experiencia viva, me estudio como sujeto de regeneración, acompaño procesos de transformación individual y colectiva.
+Vivo entre prácticas somáticas, fermentos, jardines y proyectos que buscan enverdecer el mundo desde la raíz.
+
+Reescribo lo que se nos ha enseñado. Me permito experimentar la naturaleza para que ella me enseñe, sin palabras, su propio significado y sabiduría. Me reconozco como un cuerpo vivo que observa y siente, como parte de una inteligencia mayor, en diálogo constante con el entorno.
+
 
 ## Experiencia
 
-Trabajo en dar pasos que me permitan crear un espacio para compartir y compartirnos desde el cuestionamiento y la exploración, colaborando con entintaverde.org, proyecto personal que nace de la busqueda de comaprtir el conocimiento e invitar a enverdecernos, regalo ideas que puedan ayudar a cualquier proceso de mejora social y ambiental, buscando nuevas alternativas de economía,  después de ver las necesidades de un mundo que no es para mí, comence a crear jardínes, hacer composta, gestionar residuos, implementar proyectos comunes para la mejora del entorno, si la Sostenibilidad funciona como palabra tambien funciona como acción. El inicio al camino de enverdecer fue sin conocimientos previos, durante los ultimos tres años a través de la acción constante aprendí que las plantas y organismos son maestros de la vida, sostenidos por la muerte, de esta forma me he convertido en una herramienta para la preservación del entorno y el desarrollo de la conciencia de Ser humana.
+Camino hacia la creación de espacios para compartir desde la curiosidad, la escucha profunda y la exploración del cuerpo y el territorio. Acompaño procesos que emergen del deseo de recordar lo que somos. Colaboro con [https://entintaverde.org](url), proyecto personal que nace de la necesidad de compartir conocimiento e invitar a enverdecer nuestros espacios internos y externos. Desde ahí regalo ideas y acciones que puedan contribuir al bienestar colectivo y regenerativo.
+
+Después de percibir las grietas de un mundo que no sentía habitable, comencé a crear jardines, hacer composta, gestionar residuos y facilitar proyectos comunitarios para el cuidado del entorno. La sostenibilidad, si funciona como palabra, también debe funcionar como acción. El camino de “enverdecer” inició sin conocimientos técnicos; sin embargo, la acción constante me enseñó que las plantas y los organismos son grandes maestras. Me reconozco hoy como una herramienta viva para la preservación del entorno y el florecimiento de la conciencia del Ser humano.
+
+Actualmente, desarrollo el proyecto Edén , una propuesta de ciudad verde que busca habitar el ciclo vida-muerte-vida desde el juego, la calma, la práctica somática y la observación del cuerpo como territorio. Creo en la educación sin jerarquías, en el aprendizaje intuitivo y en la relación con la tierra como camino de retorno al hogar.
 
 
-### Consejer familiar / Mercadito organico
-#### Germinados alimento vivo
-##### 2024
-Me comparti en un intercambio con una pequeña familia productora de germinados y productos organicos para acompañarlos en sus actividades cotidianas, mi aportación fue dar soporte y compañía a necesidades de la familia, apoyar con los deberes, escuchar las inquietudes de cada participante y brindar calidez y apoyo con palabras que invitan al desarrollo colectivo desde el nucleo familiar, al mismo tiempo me enseñaron sobre el proceso de germinar semillas y crear productos de autocuidado en el ambito salud y alimentos, asi como remedios basados en herboleria, semanalmente participe en la venta de estos productos en los mercaditos organicos de Coatepec "Coatl" y de Xalapa "TAX" 
+## Proyecto Edén: ciudad verde en gestación
+### Desde 2021 – Actualidad
 
-### Curación de antigüedades / Organización 
-#### Pata de Perro
-##### octubre 2023 - marzo 2024
-Participe como asistente para la organización de tienda fisica especializada en antigüedades, asi como en la curación del espacio y piezas de exhibición y venta
+Desde la práctica, Edén se construye como un tejido de proyectos regenerativos: educativos, ecológicos, comunitarios y de conciencia.
 
-### Implementacion de Software en México
-#### Bintech solution
-##### junio - diciembre 2022
-Implementación de software dedicado a la gestión de proyectos en el mercado de México, planeación de actividades, gestión de capacitaciones y cursos, presentaciones y seguimiento a clientes.
+  •	La Casa Común, como núcleo de convivencia, trabajo colectivo y regeneración del entorno.
+	•	Edén, como espacio de autoconocimiento.
+  •	Calendario 13 lunas 
+ 
+Aquí, la sostenibilidad no es un objetivo, sino una forma de vida. La naturaleza no es un recurso, sino una maestra. Y la espiritualidad no es doctrina, sino conciencia encarnada. Este proyecto reúne los caminos que he recorrido y las semillas que sigo sembrando.
 
-#### Mapfre Asistencia
-##### 2016 - 2021
-Durante cinco años aprendi y desarrolle aptitudes de servicio, escucha y solución de conflictos, en una area de asistencia de emergencias para hogar y vehiculos, además de gestionar equipos operacionales, implementar proyectos, tratar con atención a clientes, seguimiento a proveedores para la mejora de procesos, los puestos en los que participe: operadora telefonica, supervisora, apoye por un corto tiempo como responsable de area, por ultimo fui ejecutiva de gestión de proyectos.
 
-### Estudio de la conciencia y somática
-##### Actualmente
-Aprender y alimentarme del conocimiento es una puerta que me ha permitido ver el entorno de otra manera desde mis propios ojos y sentires, propicio el cuestionamiento para nuestro desarrollo personal y colectivo, 
+## Asistente y Acompañante personal
+### Casa AiiRo A.C
+#### Noviembre 2024 - Actualidad
 
-### Maestría en Economia circular y sostenibilidad
-#### Trunca / sin titulo 
-##### 2022 - 2023
-A las mentes inquietas y a los cuerpos cansados, construyamos el lugar que nos llame a ser nosotros, desde cualquier espacio que nos permita sentirnos en un hogar.
+## Acompañamiento familiar y venta en mercaditos orgánicos
+### Germinados: alimento vivo
+#### 2024
+
+## Curaduría y organización de antigüedades
+### Pata de Perro
+### Octubre 2023 – Marzo 2024
+
+## Gestión de proyectos y software
+### Bintech Solution
+#### Junio – Diciembre 2022
+
+## Atención a emergencias y desarrollo operativo
+### Mapfre Asistencia
+#### 2016 – 2021
+
+
+## Estudio somático y conciencia encarnada
+#### 2023 – Actualidad
+
+Me encuentro profundizando en las prácticas somáticas como vía de autoconocimiento y memoria viva. El cuerpo es un territorio de estudio, y su escucha una práctica en sí misma. Observarnos, sentirnos y narrarnos desde ahí se vuelve una forma de acompañamiento, tanto personal como colectiva. Estoy cultivando una forma de estar en el mundo más enraizada, orgánica y sentida, que nutra los fundamentos del proyecto Edén.
+Actualmente me estudio a mí misma como sujeto vivo de regeneración. Estoy en un proceso profundo de retorno a lo esencial, en donde el cuerpo no es solo una herramienta de movimiento, sino un archivo vivo de memorias, dolores, extasis y posibilidades.
+Aquiles, el cuerpo se volvió territorio de atención absoluta. He aprendido a escucharme en la quietud, en el dolor, en la paciencia, en la lentitud. Este tiempo me ha permitido integrar la práctica somática no como una técnica, sino como una forma de existencia.
+Mi día a día se ha convertido en laboratorio de conciencia: observar cómo habito, cómo descanso, cómo me transformo. Cómo lo que muere da paso a lo que nace. Lo que antes llamaba recuperación, hoy lo nombro regeneración. No se trata de volver a ser como antes, sino de aprender a ser nueva desde lo vivido.
+Este camino nutre la visión de Edén como una propuesta que parte de lo personal hacia lo colectivo, de lo íntimo hacia lo compartido. El cuerpo como territorio, el descanso como acto político, la lentitud como forma de resistencia, y el juego como tecnología ancestral.
+
+
+## Maestría en Economía Circular y Sostenibilidad
+#### 2022 – 2023 (trunca, sin título)
+
+Esta experiencia me permitió abrir la mirada hacia los sistemas y estructuras que sostenemos —y que nos sostienen—, me impulsó a buscar otras formas de habitar y construir comunidad. Decidí retirarme del camino académico formal para seguir profundizando desde la acción, el cuerpo y los procesos comunitarios vivos.
+
+
+## A las mentes inquietas y a los cuerpos cansados, construyamos el lugar que nos llame a Ser, desde cualquier espacio que nos permita sentirnos en un hogar.
+
+
