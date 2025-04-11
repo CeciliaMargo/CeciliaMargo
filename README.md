@@ -32,17 +32,21 @@ Aquí, la sostenibilidad no es un objetivo, sino una forma de vida. La naturalez
 ### Asistente y Acompañante personal
 Noviembre 2024 - Actualidad
 
+
 ## Germinados: alimento vivo
 ### Acompañamiento familiar y venta en mercados orgánicos
 2024
+
 
 ## Pata de Perro
 ### Curaduría y organización de antigüedades
 Octubre 2023 – Marzo 2024
 
+
 ## Bintech Solution
 ### Gestión de proyectos y software
 Junio – Diciembre 2022
+
 
 ## Mapfre Asistencia
 ### Atención a emergencias y desarrollo operativo
@@ -65,6 +69,6 @@ Este camino nutre la visión de Edén como una propuesta que parte de lo persona
 Esta experiencia me permitió abrir la mirada hacia los sistemas y estructuras que sostenemos —y que nos sostienen—, me impulsó a buscar otras formas de habitar y construir comunidad. Decidí retirarme del camino académico formal para seguir profundizando desde la acción, el cuerpo y los procesos comunitarios vivos.
 
 
-## A las mentes inquietas y a los cuerpos cansados, construyamos el lugar que nos llame a Ser, desde cualquier espacio que nos permita sentirnos en un hogar.
+### A las mentes inquietas y a los cuerpos cansados, construyamos el lugar que nos llame a Ser, desde cualquier espacio que nos permita sentirnos en un hogar.
 
 
