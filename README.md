@@ -1,7 +1,6 @@
 
 # Dedicada al Ser siendo: contemplación de la existencia a través de la naturaleza.
 
-Escucho la naturaleza para recordar quién soy.
 Investigo la conciencia desde la experiencia viva, me estudio como sujeto - territorio de regeneración, acompaño procesos de transformación individual y colectiva.
 Vivo entre prácticas somáticas, fermentos, jardines y proyectos que buscan enverdecer el mundo desde la raíz.
 Me reconozco como un cuerpo vivo que observa y siente, como parte de una inteligencia mayor, en diálogo constante con el entorno.
@@ -28,7 +27,7 @@ Desde la práctica, Edén se construye como un tejido de proyectos regenerativos
 Aquí, la sostenibilidad no es un objetivo, sino una forma de vida. La naturaleza no es un recurso, sino una maestra. Y la espiritualidad no es doctrina, sino conciencia encarnada. Este proyecto reúne los caminos que he recorrido y las semillas que sigo sembrando.
 
 
-## Casa AiiRo A.C
+## Casa AiiRo A.C 
 ### Asistente y Acompañante personal
 Noviembre 2024 - Actualidad
 
